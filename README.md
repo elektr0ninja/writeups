@@ -1,2 +1,2 @@
 # writeup
-Writeup
+Mindenféle writeupok. Jó szórakozást! :)
